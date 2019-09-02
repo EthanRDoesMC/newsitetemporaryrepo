@@ -8,4 +8,4 @@ Still temporary
 
 [Video](https://www.youtube.com/watch?v=Bb60YUkEtwk)
 
-[Website](https://maybedontsettrashonfireoveracoalmineandthenforgettoputitout.com)
+[Website - maybedontsettrashonfireoveracoalmineandthenforgettoputitout.com](https://maybedontsettrashonfireoveracoalmineandthenforgettoputitout.com)
