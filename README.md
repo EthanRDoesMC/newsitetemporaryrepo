@@ -6,5 +6,5 @@ Still temporary
 
 # Random Links For Random Purposes
 
-https://www.youtube.com/watch?v=Bb60YUkEtwk
-https://maybedontsettrashonfireoveracoalmineandthenforgettoputitout.com
+[Video](https://www.youtube.com/watch?v=Bb60YUkEtwk)
+[Website](https://maybedontsettrashonfireoveracoalmineandthenforgettoputitout.com)
